@@ -1,0 +1,2 @@
+# akbar
+cari duit
